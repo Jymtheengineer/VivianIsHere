@@ -6,3 +6,4 @@ WHat are Vivian's hobbies:
 2. Cannot swim
 Vivian's fav food is
 Chicken
+Chicken ni kuku (just saying)
